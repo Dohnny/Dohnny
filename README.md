@@ -9,7 +9,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 
 - 📍 From MT living in Agua boa
 
-- 💻 Frontend student
+- 💻 Frontend student & designer
 
 Reach me out 👇
 
